@@ -37,5 +37,5 @@ Welcome to my GitHub profile! I am passionate about software development and lov
 
 ## Get in Touch
 
-Feel free to connect with me on [LinkedIn](https://linkedin.com/in/suhani0920) or send me an email at suhani9620@gmail.com. I look forward to collaborating with you!
+Feel free to  send me an email at suhani9620@gmail.com. I look forward to collaborating with you!
 
